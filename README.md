@@ -1,5 +1,5 @@
 # 💫 About Me:
-👁️👁️ Looking for a Junior Data Scientist role in Physics and Medicine.<br>👩🏽‍🎓     I'm a graduate of the AI Core Data Science programme and a Physics Graduate.<br>👩🏽‍💻     I’ve been certified in the practical application of AI and Data Engineering using industry-standard tools.<br>🌱     I’m interested in Data Science especially in the field of Physics,Medicine and Engineering.<br>💻     I’m currently eager to collaborate on projects related with my experiences.<br>💬     Ask me about anything related to Physics and Data.<br>📫     Reach out to me on vikasiniperemakumar@gmail.com.
+👁️👁️ Looking for a Junior Data Scientist role in Science and Physics.<br>👩🏽‍🎓     I'm a graduate of the AI Core Data Science programme and a Physics Graduate.<br>👩🏽‍💻     I’ve been certified in the practical application of AI and Data Engineering using industry-standard tools.<br>🌱     I’m interested in Data Science especially in the field of Physics,Medicine and Engineering.<br>💻     I’m currently eager to collaborate on projects related with my experiences.<br>💬     Ask me about anything related to Physics and Data.<br>📫     Reach out to me on vikasiniperemakumar@gmail.com.
 
 
 ## 🌐 Socials:
